@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 Atualmente estou estudando Desenvolvimento de Sistema, e terminando o ensino médio <br>📚 Atividades academicas: Ganhei três medalhas de olimpiada de matematica, fui anjo no regional <br>de robotica, participei da OBFOG. <br> 🎸🎧 sobre mim : Adoro filmes de terror, quero aprender a tocar baixo, qualquer aréa que envolva artes, <br>eu quero me envolver, escuto todos os estilos de musicas, meus cantores favoritos<br>são : Stray Kids, annavitoria, Jão, new jeans. Meu esporte favorito é Formula 1, pratico dança<br>fazer curso da area, assim como de musica, e cinema. Já pensei em cursar engenharia <br>e trabahar para equipes do automobilismo. 
+🔭 Atualmente estou estudando Desenvolvimento de Sistema, e terminando o ensino médio <br>📚 Atividades academicas: Ganhei três medalhas de olimpiada de matematica, fui anjo no regional <br>de robotica, participei da OBFOG. <br> 🎸🎧 sobre mim : Adoro filmes de terror, quero aprender a tocar baixo, qualquer aréa que envolva artes, <br>eu quero me envolver, escuto todos os estilos de musicas, meus cantores favoritos<br>são : Stray Kids, annavitoria, Jão, new jeans. Meu esporte favorito é Formula 1, pratico dança<br> pretendo fazer curso da area, assim como de musica, e cinema. Já pensei em cursar engenharia <br>e trabahar para equipes do automobilismo. 
 
 
 ## 🌐 Socials:
